@@ -1,3 +1,1 @@
-# Railifly
-
-working on bringing you the best game site possible
+welcome to the secondary railin thingy idk
